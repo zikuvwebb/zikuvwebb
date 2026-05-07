@@ -85,3 +85,25 @@ i lowkey have DID and depressed i dont know
 
 
 # some of my link is here on bio!! go read and sign my ataaa
+
+# i am also a lesboy!! and gay and idk but i feel silly carz HELPPP
+
+# my fandom!
+
+alien stage 
+
+project sekai 
+
+tsuzuki-ka utau 
+
+utau/ vocaloid
+
+house of puso
+
+eve (kara no kioku)
+
+robloxarg
+
+## i am the sigmaaaaaaa aa
+# i have a party please stop invite 
+## WILL UPDATE TOMORROW!!!!!!!
