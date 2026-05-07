@@ -1,6 +1,11 @@
 <img src="https://github.com/github-copilot/chat/attachments/35b47517-848e-45bd-9662-e877ec8b3351">
 
 ## Hi there!! welcome to my page
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=zikuvwebb&label=zikuvwebb&color=7591bf" alt="Profile Views Counter" />
+</p>
+
  <details>
 <summary> important:</summary> 
 hi before you follow or interact im gonna let you know
@@ -73,5 +78,10 @@ i am a STUPID ass and rude motherfu-
 I'll not interact you if you blocked me
 
 or ex friends please kys
+
+please dont copy or color pick my skin
+
+i lowkey have DID and depressed i dont know
+
 
 # some of my link is here on bio!! go read and sign my ataaa
