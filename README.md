@@ -1,4 +1,6 @@
-## Hi there!! welcome fo to my page
+<img src="https://github.com/github-copilot/chat/attachments/35b47517-848e-45bd-9662-e877ec8b3351">
+
+## Hi there!! welcome to my page
  <details>
 <summary> important:</summary> 
 hi before you follow or interact im gonna let you know
@@ -51,3 +53,25 @@ learn how different darkship and proship
    not all proship would be that good person ok
 
    </details>
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+
+## some of my draws ok
+
+<img src="https://github.com/github-copilot/chat/attachments/0ab0bfb9-7148-4704-a48c-d7f631924706">
+<img src="https://github.com/github-copilot/chat/attachments/52c818cf-54ab-40f7-966e-eaf67d4155c2">
+
+# i have more but please dont copy and traced it
+
+## some of my info ok 
+
+I would wake up late when i wake i would play ponytown 
+
+I'm not sleep all of day some day ok!!
+
+i am a STUPID ass and rude motherfu-
+
+I'll not interact you if you blocked me
+
+or ex friends please kys
+
+# some of my link is here on bio!! go read and sign my ataaa
