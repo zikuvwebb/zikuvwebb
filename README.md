@@ -1,3 +1,8 @@
+
+<p align="center"> <img src="https://readme-typing-svg.herokuapp.com?font=Cormorant+Unicase&pause=1000&color=625D5C&center=true&width=435&lines= hi im hasukamae n2 fan >
+</p>
+
+
 <img src="https://github.com/github-copilot/chat/attachments/6524a6d5-32ea-45f6-a55d-36fdcf9a5981">
 
 ## Hi there!! welcome to my page
