@@ -32,9 +32,21 @@
   
    
    sign ma ataboo boobobo  pleases.
-  
+
+  ---
+
+## fandom list
+
+kara no kioku, tsuzuki ka utau , project sekai , vocaloid,unstable smp
+
+  sfawtde(Searching For a World That Doesn't exist) , Minecraftarg , robloxarg
+   
    ꩜
    
    thank for reading 
 
    <img src="https://github.com/github-copilot/chat/attachments/d4dd2240-1759-47b5-9015-ff6f36312ba0" width="550" alt="alt text">
+
+![Typing SVG](https://readme-typing-svg.herokuapp.com?font=IBM&color=AAAAAA&size=24&lines=i+have+basic+dni+ok)
+
+
